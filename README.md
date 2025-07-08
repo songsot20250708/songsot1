@@ -10,4 +10,4 @@
 
 这些日本成人影视资源平台为用户提供了多种分类选择，如按演员、剧情或类型等。每个视频都附有详细信息，包括时长、演员阵容和分辨率等，帮助用户轻松找到感兴趣的内容。平台支持高清流畅播放，根据网络环境自动调整画质，保证用户的观影体验无卡顿。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/songsot20250708/songsot1 ）</span>
